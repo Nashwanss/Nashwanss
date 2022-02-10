@@ -10,6 +10,7 @@
 I am in Belgium since four years right now, I studied the French language from scratch and I think I did some good progress in it.    
 My last proffesional title was a product manager for the japaneese printers "brother".
 
+
 ####  skills:
 - Organized at office.
 - Good teamplayer.
@@ -42,4 +43,4 @@ To work in a stimulating environment where I can apply and enhance my knowledge 
 >“When things go wrong ; don't go with them.”
 
 
-![GIF](https://c.tenor.com/5mbcaFMynFMAAAAC/balloon.gif)
+![GIF](https://c.tenor.com/3YXu6jc9W-0AAAAd/chubby-chubby-leopard.gif)
